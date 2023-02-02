@@ -4,6 +4,6 @@
 - 😀 I’m looking to set up team
 - 📫 How to reach me: https://t.me/untold_hacker
 - 😄 Project : Website 
-- ⚡ Fun fact: 🤪[.loot]=[.team]
+- ⚡ Fun fact: 🤪[.loot]=[.team] illogical 
 ### Thanks for reading 😇
 
